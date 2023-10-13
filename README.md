@@ -1,0 +1,1 @@
+# quantative_analysis_of_canditates_in_the_2019_loksabha_elections
